@@ -14,10 +14,8 @@ https://www.canva.com/design/DAHFFbKH6Rg/z0i116xEevEsGk_1uGHBdw/edit?utm_content
 https://docs.google.com/forms/d/e/1FAIpQLScptjfjS2TlAIGMHyY2OpWbZca54pvuHk8UIU07Ml1T2b6KiQ/viewform?pli=1
 </br><br>Module 4: The Art of Professional CommunicationCommunicating online is easy, but doing it professionally is a skill that needs to be practiced. I focused on drafting clear, respectful emails for scenarios like requesting deadline extensions or applying for internships. I also created a "Social Media Do’s and Don’ts" checklist to remind myself and others how to maintain a positive digital reputation.Key Focus: Email etiquette and responsible social media behavior.</br>  <br>EMAIL ETIQUETTE: https://1drv.ms/w/c/ffd0989f6ab375c8/IQDo-NCetij2TLYYXQwVQXXGAQrSsnwlPDc9ou4Y1HhTzjs?e=y3IpFg  </br>
 <br>SOCIAL MEDIA CHECKLIST: https://1drv.ms/w/c/ffd0989f6ab375c8/IQCpjRJ1kqs0S6UJigQsQ0LeAYkUpvqjChnXDHXvXMYExbg?e=uxbzMa
-</br><br>Module 5: Staying Safe in a Digital WorldThe final part of my journey was the most eye-opening. I researched the mechanics of UPI and online payment fraud, learning exactly how "Request" button scams work. I compiled a case study and a prevention checklist to help my peers recognize these threats and know exactly how to report them using the 1930 helpline.Key Focus: Cybercrime awareness and actionable safety tips for financial transactions.</br> LINK:
-CASE STUDY:<br>
+</br><br>Module 5: Staying Safe in a Digital WorldThe final part of my journey was the most eye-opening. I researched the mechanics of UPI and online payment fraud, learning exactly how "Request" button scams work. I compiled a case study and a prevention checklist to help my peers recognize these threats and know exactly how to report them using the 1930 helpline.Key Focus: Cybercrime awareness and actionable safety tips for financial transactions.</br> LINK:<br>
 https://www.canva.com/design/DAHFJht3TWw/FKTB5EuOkJ0Z3r7fVDzSnw/edit?utm_content=DAHFJht3TWw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
-</br>PREVENTION CHECKLIST:<br> 
-https://www.canva.com/design/DAHFJxlE6Bc/KV5dMZH-S9xOSD-8jcOkJw/edit?utm_content=DAHFJxlE6Bc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton </br>
+
 
 
